@@ -1,1 +1,2 @@
-first commit here & now
+Mityaev Artyom Aleksandrovich.
+Playing futsal, listening rock music.
